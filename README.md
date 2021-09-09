@@ -1,2 +1,1 @@
-# SurgeLeaked
- discord.gg/killaura on top ;)
+fuck u rxversed and whover participated in the nuker
